@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![](C:\Users\35212\Pictures\rijksmuseum_mignons_1660.jpg)
+![](https://github.com//yang19690000//rijksmuseum_mignons_1660.jpg)
 
 ### This is a man from NWU(China) who want to communicate with brilliant coder across the whole world !
 
