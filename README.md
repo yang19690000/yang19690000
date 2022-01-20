@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![](https://raw.githubusercontent.com/yang19690000/picture/master/641%20(3).jpg)
+![](https://raw.githubusercontent.com/yang19690000/picture/master/641%20(1).jpg)
 
 ### This is a student from NWU(China) who want to communicate with brilliant coder across the whole world !
 
