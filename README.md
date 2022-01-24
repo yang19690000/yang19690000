@@ -2,7 +2,7 @@
 
 ![](https://raw.githubusercontent.com/yang19690000/picture/master/641%20(1).jpg)
 
-## This is a student from NWU(China) who want to communicate with brilliant coder across the whole world !
+## I am a student from NWU(China) who want to communicate with brilliant coder across the whole world !
 
 - ### I love c which is so powerful , elegant , famous for its brilliant performance!
 - ### Java is also my favorite. This  giant boat lead me to see millions of funny things by its  numerous frames ,like Spring and its family.
